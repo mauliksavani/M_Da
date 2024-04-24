@@ -1,3 +1,2 @@
-my name is dhruv;ihrfihifiefiejifj
-my friend name is maulikijivjeijv
-my friend maulik jiweciwncinwicniwnciwnixuniwnjiwncibwicbwicniwnickn
+my friend name is maulik
+in father name is jantibhai
