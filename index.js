@@ -1,2 +1,2 @@
-my friend name is maulik
-in father name is jantibhai
+my friend name is dhruv
+in father name is navnit bhai
