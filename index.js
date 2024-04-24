@@ -1,1 +1,1 @@
-'sunday','monday','tuesday',
+'sunday','monday','tuesday','wednesday',
